@@ -1,6 +1,6 @@
 Hi, I’m Andrea 👋
 
-IT Operations professional transitioning into IT Support and Systems Administration.
+Operations professional transitioning into IT Support and Systems Administration.
 
 🔧 Skills:
 
